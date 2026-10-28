@@ -1,4 +1,4 @@
-### Hi there 👋 :computer:
+### Hello there :raised_hands:
 
 Currently taking off at Despegar :airplane:
 
